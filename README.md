@@ -1,0 +1,1 @@
+# The-Farid-Galactic-Gate-Collapse-How-SMBH-Functional-Decay-Triggers-Entropic-Capture-and-Mergers
